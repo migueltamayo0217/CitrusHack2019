@@ -1,2 +1,12 @@
 # CitrusHack2019
-4/26 - 4/28
+April 26th to April 28th
+
+Project Name: UWU 2019
+
+
+Contributors:
+
+Keshav
+Vedavit
+Miguel
+Louise
